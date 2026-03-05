@@ -29,3 +29,11 @@ My Advice:
 Be very cautious when browsing financial websites online. Real banks will never ask you for personal info like your password, PIN, or Social Security number out of nowhere. Always verify before you trust a website with your money or personal information.
 
 Please be aware of this scam so that it doesn’t happen to you. The more people who know about this, the less likely they are to become victims.
+
+
+Berkley Credit Bank
+Berkeley Credit Bank
+Berkley Credit Bank scam
+Is Berkley Credit Bank legitimate
+berkeleycreditbank.com phishing
+berkeleycrbk.com review
